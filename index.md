@@ -1,4 +1,4 @@
-# Mosayeb Mehrabi 👋
+# Mosayeb Mehrabi 
 
 ## IT Specialist | Network Expert  
 📍 Iran  
